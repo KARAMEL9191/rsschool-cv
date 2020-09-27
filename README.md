@@ -1,0 +1,6 @@
+## Usova Yana Alexsandrovna
+### contacts: my number +79370242877
+### my email bss-89@yandex.ru
+##### Good day! My name is Yana. I have not worked in IT, but I feel that the time has come) 6 years ago I graduated from the SSTU Faculty of Computer Science. I liked studying, I delved into all the processes, I especially liked the practical lessons. She worked in sales for 6 years, during which time she acquired many valuable qualities such as teamwork, achievement of general and personal results, experience in a management position. And all this time I have not left the craving for setting up and developing technical processes. In my free time I studied HTML, wrote simple websites, studied English.
+##### On September 6, she began training at RS School as a professional Javascript.
+##### From my new job, I look forward to communicating with experienced software developers, diving into interesting tasks. Despite the lack of experience in IT and thanks to such qualities as resistance to stress, the ability to work in multitasking mode, quick learning, communication skills, I am ready to quickly grasp and start to conquer the heights in a new area for me.
